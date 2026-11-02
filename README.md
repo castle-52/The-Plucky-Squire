@@ -221,4 +221,4 @@ The Plucky Squire is available as a full free version with all features and upda
 Don't miss out on the enchanting adventures of The Plucky Squire—download it today and relive the magic of fairy tales!
 
 ---
-**Last updated:** 2026-11-02 03:03:11 UTC
+**Last updated:** 2026-11-02 11:45:20 UTC
